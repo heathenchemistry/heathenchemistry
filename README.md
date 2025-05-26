@@ -4,7 +4,7 @@
 
 hello my name is Liam. i am not actually Liam Gallagher but i am also him and also not
  
-he / they
+he / him
  
 I LOVE BRITPOP oasis are my favs but i'm big into most britpop bands ask me about them
 
