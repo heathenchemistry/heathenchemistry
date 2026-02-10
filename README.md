@@ -4,7 +4,7 @@
  
 <p align="center">LIAM. he / she. #1 doomed brother enjoyer</p>
 <p align="center">i do not play about noel and liam gallagher from oasis. i ESPECIALLY do not play about noel gallagher</p>
-<p align="center">i am quite fond of britpop in general. i also like the beatles! slenderverse too :) talk to me about music</p>
+<p align="center">i am quite fond of britpop in general. i also like tally hall :) talk to me about music</p>
 <p align="center">i am normal. i can be trusted. c + h is okay. i am normally sitting alone </p>
 
 
